@@ -41,3 +41,4 @@ These changes are effective immediately after they are posted on this page.
 ## 8. Contact Us
 
 If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.
+dailypromisescontact@gmail.com
